@@ -26,4 +26,7 @@ _Space_License_Open_Source_ (Version 1)
 
     Repeated violations may result in longer suspensions or permanent termination at the discretion of the original author.
 
+
 [Made By Space]
+
+# For God so loved the world, that He gave His only begotten Son, that whosoever believeth in Him should not perish, but have everlasting life. (John 3:16)
